@@ -3,6 +3,7 @@
 Casue I Got a HARD WORK(Duty) From Greely Evun Co.
 MayBe the MQ4JJ will never update..
 I don't know..No idea.
+SORRY ABOUT THAT
 
 ------
 2017/12/24 
